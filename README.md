@@ -2,4 +2,4 @@
 
 <div align="right">
   
-[main](https://github.com/scam-duo)
+[main account](https://github.com/scam-duo)
